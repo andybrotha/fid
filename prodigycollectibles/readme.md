@@ -1,0 +1,1 @@
+This is a website dedicated to Prodigy Collectibles to advertise their various collectibles
